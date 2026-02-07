@@ -25,4 +25,4 @@
     </tr>
   </table>
 
-  <img src="https://i.postimg.cc/fR2WckFD/Untitled470-20260207161602.png" width="450"  >
+  <img src="https://i.postimg.cc/fR2WckFD/Untitled470-20260207161602.png" width="450" align="right" >
