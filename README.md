@@ -1,8 +1,8 @@
 <div align="center">
   
-<img src="https://i.postimg.cc/dVczZFn5/Untitled470-20260207155709.png" align="left" width="100" >
+<img src="https://i.postimg.cc/dVczZFn5/Untitled470-20260207155709.png" align="left"  >
 
-<img src="https://i.postimg.cc/z3ZPhwwr/Untitled470-20260207155916.png" width="450" >
+<img src="https://i.postimg.cc/z3ZPhwwr/Untitled470-20260207155916.png" width="450" align="right" >
 <br>
 <br>
 <br>
