@@ -20,15 +20,15 @@
     <tr>
       <td>
         <br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info
+      Hawk '' Rot‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ He-It <br>
+      Agender‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ AroAce <br>
+      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎· · ─ ·✶· ─ · ·<br>
+      KYS/KMS, Freaky jokes, etc. <br>
+      ‎suspected neurodivergency +  <br>
+      depression, also antisocial  <br>
+      ( I think.. )<br>
+      Dni 19+ and -13 , minor myself<br>
+      yeah thats like it or something
         <br>
           <br>
       </td>
