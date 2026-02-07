@@ -9,9 +9,9 @@
 
 <img src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s2048x3072/d8bde73a8813189654996f53a4b8866b39f92ae4.pnj" width="850" alt="top lace">
 
-<img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s2048x3072/73e1c3f00e1e2a2e70c28f5c9389716bfdca6d07.pnj" width="100" alt="flower div">
+<img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s2048x3072/73e1c3f00e1e2a2e70c28f5c9389716bfdca6d07.pnj" width="500" alt="flower div">
 <br>
-<img src="https://i.postimg.cc/dVczZFn5/Untitled470-20260207155709.png" width="350" align="left" alt="flower">
+<img src="https://i.postimg.cc/dVczZFn5/Untitled470-20260207155709.png" width="500" align="left" alt="flower">
 
 
 <br>
